@@ -9,6 +9,9 @@ Tripoli
 Arabic
 
 ## interesting trivia
+
 Inhabited as early 800B.c
+
+
 
 
